@@ -1,6 +1,6 @@
 - Hi, I’m @Linush-hary-22
 - I’m interested in Cyber Security
-- 🌱 I’m currently learning as a Undergraduate
+- I’m currently learning as a Undergraduate
 - How to reach me ...
 -     Email : Linushhary.use@gmail.com, Linushhary.official@gmail.com
 -     Whatsapp : +94 76 433 6397
